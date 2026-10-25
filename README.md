@@ -2,7 +2,8 @@
  $\color{#659297}{Hello ༄.° This~~ is~~ my~~ alt~~ account~~ I’d~~ be~~ so~~ happy~~ if~~ you~~ checked~~ out~~ my~~ main~~ account~~ 𓆝 ⋆.}$
  <p align="rıght">
  $\color{#659297}{c*h~~ anytime!~~ dont~~ be~~ shy!~~ offtab+afk~~ alywas~~𓏲๋࣭࣪˖🪼.ᐟ}$
- 
+ <p align="rıght">
+ $\color{#a4344b}{and~~ please~~ please~~ please!~~ sign~~ my~~ ata!!~~𓏲๋࣭࣪˖🪼.ᐟ}$
 
 
 <p align="rıght">
