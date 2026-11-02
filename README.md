@@ -5,10 +5,8 @@
  <p align="rıght">
  $\color{#a4344b}{and~~ please~~ please~~ please!~~ sign~~ my~~ ata!!~~𓏲๋࣭࣪˖🪼.ᐟ}$
 
-<p align="left">
- $\color{#553543}{"Hello,~~ Link.,~~ Because~~ of~~ your~~ courage~~, my~~ spirit~~ is~~ now~~ free.~~ And~~ Ruta~~, as~~ well.}$
-  <p align="left">
- $\color{#553543}{Thank~~ you.~~ For~~ I~~ am~~ now~~ allowed~~ this~~ freedom...~~ to~~ be~~ with~~ yo~~u once~~ again. . .}$
+<p align="left">$\color{#553543}{"Hello,~~ Link.,~~ Because~~ of~~ your~~ courage~~, my~~ spirit~~ is~~ now~~ free.~~ And~~ Ruta~~, as~~ well.}$
+  <p align="left"> $\color{#553543}{Thank~~ you.~~ For~~ I~~ am~~ now~~ allowed~~ this~~ freedom...~~ to~~ be~~ with~~ yo~~u once~~ again. . .}$
 <p align="rıght">
  $\color{#659297}{☆}$ <a href="https://lastgoodby3.atabook.org/">Ata</a>$\color{#659297}{✿}$ <a href="https://github.com/MYlastgoodby3">mainACC!!
 
