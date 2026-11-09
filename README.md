@@ -9,6 +9,8 @@
  $\color{#659297}{☆}$ <a href="https://lastgoodby3.atabook.org/">Ata</a>$\color{#659297}{✿}$ <a href="https://github.com/MYlastgoodby3">mainACC!!
 
   <p align="left"><img width="680" height="919" alt="Başlıksız236_20261025141147" src="https://github.com/user-attachments/assets/cb82f155-c562-4241-ba27-51661380ef48" /><p align="rıght">
+   <img width="720" height="47" alt="Ekran görüntüsü 2026-11-09 222731" src="https://github.com/user-attachments/assets/f80817ff-1d85-44f3-af75-280b4f7dff3a" />
  $\color{#553543}{"Hello,~~ Link.,~~ Because~~ of~~ your~~ courage~~, my~~ spirit~~ is~~ now~~ free.~~ And~~ Ruta~~, as~~ well.}$
   <p align="rıght">
  $\color{#553543}{Thank~~ you.~~ For~~ I~~ am~~ now~~ allowed~~ this~~ freedom...~~ to~~ be~~ with~~ yo~~u once~~ again. . .}$
+
